@@ -1,3 +1,3 @@
 ## OpenSource
 
-Einführung eines Vollgeldsystems (Monetative) Die Geldschöpfung obliegt der Bundesbank. Das durch die Bundesbank geschöpfte Geld wird durch die Regierung dem Wirtschaftskreislauf hinzugeführt. Die Ausgaben müssen dabei stehts dem Allgemeinwohl dienen. Im Geldsystem ist die Notwendigkeit einer Reform besonders groß, denn genau hier liegt auch der Ursprung vieler Krisen und krisenhafter Situationen (vgl. Finanzkrise 2007). Hier muss sich etwas ändern, deshalb muss eine Vollgeldreform durchgeführt werden.
+Um Politik so transparent wie Möglich zu gestalten fordern wir alle Akten und Unterlagen unzensiert und öffentlich zugänglich zu machen. Jeder Bürger hat das Recht Einsicht auf alle die von ihm gewünschten Unterlagen zu haben. 
